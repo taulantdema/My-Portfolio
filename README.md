@@ -1,2 +1,2 @@
 # MyPortfolio
-My personal portfolio - Rron Jakupi
+My personal portfolio - Taulant Dema
